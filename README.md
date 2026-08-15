@@ -1,4 +1,4 @@
 <div align = center>
 
 
-His anatomy is identical to mine.
+![](https://mashirooooo.carrd.co/assets/images/image03.gif?v=54c47f83)
