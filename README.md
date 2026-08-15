@@ -1,4 +1,4 @@
 <div align = center>
 
 
-![](https://mashirooooo.carrd.co/assets/images/image03.gif?v=54c47f83)
+![](https://mashirooooo.carrd.co/assets/images/image06.gif?v=bba3be59)
