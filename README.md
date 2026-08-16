@@ -1,8 +1,5 @@
 <div align=center> 
 
-    
-  ![](https://komarev.com/ghpvc/?username=xnpxo&color=000000)
-
 
   
 <div style="width:100%;">  
@@ -16,3 +13,6 @@
        alt="20260813-184629"  
        style="width:100%; height:auto; display:block;">
 </div>
+
+
+  ![](https://komarev.com/ghpvc/?username=xnpxo&color=000000)
