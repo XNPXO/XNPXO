@@ -12,6 +12,11 @@
   <img src="https://mashirooooo.carrd.co/assets/images/image08.jpg?v=5027492d"  
        alt="20260813-184629"  
        style="width:100%; height:auto; display:block;">
+       
+
+ ![](https://komarev.com/ghpvc/?username=xnpxo&color=000000&label=AUDIENCE)
+
+      
   
 Check = [atabook](https://xnpxo.atabook.org/) , [strwpg](https://xnpxo.straw.page/)
 </div>
@@ -24,4 +29,4 @@ $${\color{#}INTJ—5w6}$$$${\color{#}he/him}$$
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
-  ![](https://komarev.com/ghpvc/?username=xnpxo&color=000000&label=AUDIENCE)
+  
