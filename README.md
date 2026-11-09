@@ -16,16 +16,11 @@
 
  ![](https://komarev.com/ghpvc/?username=xnpxo&color=000000&label=AUDIENCE)
 
-      
+      recently just put this account in public lol
   
-  [atabook](https://xnpxo.atabook.org/) , [strwpg](https://xnpxo.straw.page/)
+  [atabook](https://xnpxo.atabook.org/) , [strwpg](https://xnpxo.straw.page/) , [alt](https://github.com/HlGURUMA/) , [semi-main](https://github.com/irlpantalone/)
 </div>
 
-
-  ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
-
-$${\color{#}INTJ—5w6}$$$${\color{#}he/him}$$
-                
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
