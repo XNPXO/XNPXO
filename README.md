@@ -18,7 +18,7 @@
  
  recently just put this account in public lol
   
-  [atabook](https://xnpxo.atabook.org/) , [strwpg](https://xnpxo.straw.page/) , [alt](https://github.com/HlGURUMA/) , [semi-main](https://github.com/irlpantalone/)
+  [atabook](https://xnpxo.atabook.org/)        [strwpg](https://xnpxo.straw.page/)           [alt](https://github.com/HlGURUMA/)          [semi-main](https://github.com/irlpantalone/)
 </div>
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
