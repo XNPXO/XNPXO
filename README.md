@@ -3,13 +3,13 @@
 
   
 <div style="width:100%;">  
-  <img src="https://mashirooooo.carrd.co/assets/images/image10.jpg?v=3b02b7ad"  
+  <img src="https://imagestocks.carrd.co/assets/images/image10.jpg?v=ce0d3974"  
        alt="20260813-184629"  
        style="width:100%; height:auto; display:block;">
 
   
 <div style="width:100%;">  
-  <img src="https://mashirooooo.carrd.co/assets/images/image08.jpg?v=5027492d"  
+  <img src="https://imagestocks.carrd.co/assets/images/image08.jpg?v=ce0d3974"  
        alt="20260813-184629"  
        style="width:100%; height:auto; display:block;">
        
