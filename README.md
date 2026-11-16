@@ -3,12 +3,13 @@
     <tr>      
       <td>
         <div align="center">
-
+        <br>
+          
    ![](https://imagestocks.carrd.co/assets/images/image03.gif?v=c38aaf81")
 <br>
 <div align="center">
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=cfejt71md60rfzzyvoa2kpja3&cover_image=false&theme=novatorem&show_offline=true&background_color=000000&interchange=true&profanity=false&hide_remaster=false&bar_color=ffffff)](https://github.com/kittinan/spotify-github-profile)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=cfejt71md60rfzzyvoa2kpja3&cover_image=false&theme=novatorem&border_radius=10&show_offline=true&background_color=000000&interchange=true&profanity=false&hide_remaster=false&bar_color=ffffff)](https://github.com/kittinan/spotify-github-profile)
 
 𝘤𝘩𝘦𝘤𝘬 𝘴𝘵𝘳𝘢𝘸𝘱𝘢𝘨𝘦 𝘣𝘺𝘪
   
