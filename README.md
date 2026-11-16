@@ -1,27 +1,14 @@
 <div align=center> 
 
 
-  
-<div style="width:100%;">  
-  <img src="https://imagestocks.carrd.co/assets/images/image10.jpg?v=ce0d3974"  
-       alt="20260813-184629"  
-       style="width:100%; height:auto; display:block;">
 
-  
-<div style="width:100%;">  
-  <img src="https://imagestocks.carrd.co/assets/images/image08.jpg?v=ce0d3974"  
-       alt="20260813-184629"  
-       style="width:100%; height:auto; display:block;">
-       
 
- ![](https://komarev.com/ghpvc/?username=xnpxo&color=000000&label=AUDIENCE)
- 
- recently just put this account in public lol
-  
-  [atabook](https://xnpxo.atabook.org/)        [strwpg](https://xnpxo.straw.page/)           [alt](https://github.com/HlGURUMA/)          [semi-main](https://github.com/irlpantalone/)
-</div>
+  <table>
+    <tr>      
+      <td>
+        <div align="center">
+          
+   <img width="364" height="150" img="https://imagestocks.carrd.co/assets/images/image02.gif?v=d85f4e71" />
+<br>
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
-
-  
+  <table align="center">
