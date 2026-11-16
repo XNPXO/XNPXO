@@ -1,15 +1,10 @@
 <div align=center> 
-
-𝗩𝗘𝗞𝗦 / 𝗙𝗘𝗢
-             <br>
-             ʰᵉ  / ʰⁱᵐ
-
   <table>
     <tr>      
       <td>
         <div align="center">
 
-   ![](https://imagestocks.carrd.co/assets/images/image02.gif?v=d85f4e71")
+   ![](https://imagestocks.carrd.co/assets/images/image03.gif?v=c38aaf81")
 <br>
 <div align="center">
 
