@@ -13,6 +13,6 @@
 
 <div align="center">
   
-    about
+ ᵛᵉᵏˢ / ᶠᵉᵒ     `     ʰᵉ  / ʰⁱᵐ
 
   <table align="center">
